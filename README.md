@@ -2,6 +2,6 @@
 
 - 🔭 I’m currently working on Machine Learning (NLP) "Predicting Aggressive Responsive Behaviour Among People with Dementia"
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I love interacting with people and love to be a project manager!
+- ⚡ Fun fact: I love interacting with people and I used to be sales person!
 - 📫 How to reach me: Instagram: https://www.instagram.com/1irooni2canada/
 
